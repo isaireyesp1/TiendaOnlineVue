@@ -76,3 +76,37 @@ Las contribuciones son bienvenidas. Si deseas colaborar, por favor abre un **iss
 ## 📜 Licencia
 
 Este proyecto está bajo la licencia **MIT**.
+
+## TimShop
+
+![image](https://github.com/user-attachments/assets/bc0b7171-6506-4c28-a424-3fe55ebe40af)
+
+![image](https://github.com/user-attachments/assets/f34878e9-a112-4052-bc47-7ec4fceaa7d9)
+
+![image](https://github.com/user-attachments/assets/1dcafe94-739b-4a53-9a73-3b48dd8069a7)
+
+![image](https://github.com/user-attachments/assets/2f7596d6-c690-4dd7-a04a-89bd9a62eb70)
+
+![image](https://github.com/user-attachments/assets/06581506-7616-475e-90e3-6970d1cff3d7)
+
+![image](https://github.com/user-attachments/assets/0ea7913c-2bf8-4376-889f-d1d7b0e08f78)
+
+![image](https://github.com/user-attachments/assets/220f8519-dad3-49e5-bf3f-cb176bb6e152)
+
+![image](https://github.com/user-attachments/assets/5d1d9283-db76-486b-8c03-030a58b85b48)
+
+![image](https://github.com/user-attachments/assets/7393ab14-6245-484b-b70b-b7ce14077052)
+
+![image](https://github.com/user-attachments/assets/3a0c2b00-0b21-44d0-aac4-c066dcb6c8a6)
+
+![image](https://github.com/user-attachments/assets/c7287553-1063-45f1-9fc1-750beee28421)
+
+
+
+
+
+
+
+
+
+
